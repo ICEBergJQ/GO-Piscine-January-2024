@@ -1,6 +1,6 @@
 My solutions for Zone01 Oujda pool january 2024
 
-do not copy past just learn and enjoy ur pool
+do not copy just learn and enjoy ur pool
 
 ⠀⠀⠀⠀⠀⣀⣤⡴⣶⣶⣶⣦⣤⣤⡀⣄⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣤⠴⠶⣤⣤⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⢠⡴⣻⣽⣿⣿⣿⣿⣿⣿⣿⣷⣯⡦⣅⣠⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣴⢞⣯⣤⣶⣶⣶⣮⣝⡷⣦⡀⠀⠀⠀⠀⠀⠀⠀⠀
